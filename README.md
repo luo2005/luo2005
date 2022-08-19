@@ -1,16 +1,13 @@
-### Hi there 👋
+Hello friend.
 
-<!--
-**luo2005/luo2005** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Goodbye friend.
 
-Here are some ideas to get you started:
+I felt so sentimental when discovered this GitHub account.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+What if I used those days better and learned more? What if I did something more meaningful instead of wasting that time?
+
+No one knows.
+
+> 🎶Disturb the sound
+
+> 🎶of silence.
