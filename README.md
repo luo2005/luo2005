@@ -11,3 +11,9 @@ No one knows.
 > 🎶Disturb the sound
 
 > 🎶of silence.
+
+![](https://github.githubassets.com/images/modules/profile/profile-joined-github.svg)
+
+Joined GitHub
+
+on October 26, 2016
